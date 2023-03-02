@@ -1,4 +1,4 @@
 # Spa Resort
-Indulge yourself in high level of luxury and comfort with our exquisite wallpaper collection.
+A premium quality, aesthetic wallpapers for every moment of your life.
 
 _"Elegance is the only beauty that never fades." - Audrey Hepburn_
